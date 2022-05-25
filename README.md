@@ -1,0 +1,2 @@
+# Amirtemur
+Info-wiki
